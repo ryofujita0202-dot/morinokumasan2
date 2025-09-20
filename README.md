@@ -1,1 +1,0 @@
-# morinokumasan2
